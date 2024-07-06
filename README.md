@@ -1,2 +1,1 @@
-# Flucasro.github.io
-# Welcome to the Private Domain: UCC-Ver.
+# Flucasro.github.io Welcome to the Private Domain: UCC-Ver.
